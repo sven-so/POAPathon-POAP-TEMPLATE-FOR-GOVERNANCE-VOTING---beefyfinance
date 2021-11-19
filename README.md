@@ -1,0 +1,1 @@
+# POAPathon-POAP-TEMPLATE-FOR-GOVERNANCE-VOTING---beefyfinance
